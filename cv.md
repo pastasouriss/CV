@@ -8,7 +8,7 @@
 
 ## Brief Self-Introduction
 
-I am a junior UX/UI designer from Minsk. At the moment I am studying at the Belarusian State University of Informatics and Radioelectronics (*BSUIR*) in the specialty _"information networks and technologies in the gaming industry"_. I strive to learn new things and am open to new acquaintances :)
+I am a 19-year-old student at BSUIR and a beginner UX designer. I am open-minded and love learning new things. I enjoy exploring fresh ideas and am excited to grow my skills in creating user-friendly designs.
 
 ## Skills
 
