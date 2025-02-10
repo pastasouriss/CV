@@ -41,5 +41,5 @@ I am a junior UX/UI designer from Minsk. At the moment I am studying at the Bela
 - English - Intermediate
 - German - Intermediate
 - Russian - Native
-- Belarusian - Intermediate
+- Belarusian - Native
 
