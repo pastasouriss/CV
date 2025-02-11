@@ -8,7 +8,7 @@
 
 ## Brief Self-Introduction
 
-I am a 19-year-old student at BSUIR and a beginner UX designer. I am open-minded and love learning new things. I enjoy exploring fresh ideas and am excited to grow my skills in creating user-friendly designs.
+I’m a 19-year-old student at BSUIR and an emerging UX designer with a passion for creativity. I love exploring new ideas and tackling design challenges that make interfaces both simple and enjoyable. I’m always eager to learn, collaborate, and bring a fresh perspective to every project!
 
 ## Skills
 
